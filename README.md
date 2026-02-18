@@ -81,7 +81,7 @@ A Generative AI–powered machine learning learning system that provides persona
 
 ##📫 Connect With Me
 
-LinkedIn:  https://www.linkedin.com/in/yashwant-karri-11872631a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+LinkedIn:  https://in.linkedin.com/in/yaswanth-karri-11872631a
 
 Email: karriyashwant@gmail.com
 
